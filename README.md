@@ -1,4 +1,4 @@
-#Publisher Rocket Discount Codes 2024 | Get It For Just $97
+# Publisher Rocket Discount Codes 2024 | Get It For Just $97
 
 Publisher Rocket is a powerful tool that helps you uncover profitable keywords, categories, and competitors for your books.
 

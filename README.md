@@ -118,8 +118,7 @@ Get publisher Rocket with a lifetime license at just $97 with this coupon code. 
 
 ## Conclusion: Is Publisher Rocket Worth It?
 
-[Publisher Rocket coupons](https://bit.ly/3XKLNep) are a great opportunity for authors and publishers aiming to enhance their visibility on Amazon.
-
+Use the latest [$199 Publisher Rocket discount coupon](https://yupbeat.com/deals/publisher-rocket-discount/) and claim a great opportunity for authors and publishers aiming to enhance their visibility on Amazon.
 It assists in finding the best keywords and categories, saving time in book marketing tasks.
 
 Many users have found it beneficial, making it a worthwhile investment.

@@ -2,11 +2,11 @@
 
 Are you looking for the latest discount coupons for Publisher Rocket?
 
-In this [Publisher Rocket coupon](https://bit.ly/3XKLNep) article, I will show you how you can claim a lifetime deal.
+In this [Publisher Rocket coupon](https://bloggervoice--rocket.thrivecart.com/publisher-rocket/) article, I will show you how you can claim a lifetime deal.
 
 ## Publisher Rocket Discount Get Lifetime Access At $199
 
-Claim your Lifetime Access at [just $199](https://bit.ly/3XKLNep) with this Publisher Rocket Discount Coupon.
+Claim your Lifetime Access at [just $199](https://bloggervoice--rocket.thrivecart.com/publisher-rocket/) with this Publisher Rocket Discount Coupon.
 
 Lifetime access includes.
 
@@ -19,13 +19,13 @@ Lifetime access includes.
 
 ## Publisher Rocket Discount [Free Trial]
 
-Claim [Publisher Rocket's Free trial](https://bit.ly/3XKLNep) with its 30-day Money-back Guarantee, explore all of its premium tools, and decide for yourself whether it's worth upgrading.
+Claim [Publisher Rocket's Free trial](https://bloggervoice--rocket.thrivecart.com/publisher-rocket/) with its 30-day Money-back Guarantee, explore all of its premium tools, and decide for yourself whether it's worth upgrading.
 
 ## How To Claim Publisher Rocket Discounts?
 
 Follow the simple and easy steps below to claim your discount coupon now.
 
-Step 1: Click on this [discount link](https://bit.ly/3XKLNep) to visit the Publisher Rocket website.
+Step 1: Click on this [discount link](https://bloggervoice--rocket.thrivecart.com/publisher-rocket/) to visit the Publisher Rocket website.
 
 Step 2: Click on “Get Publisher Rocket”.
 
@@ -33,7 +33,7 @@ Step 3: Enter your personal details to create an account.
 
 ![|624x257](https://lh7-rt.googleusercontent.com/docsz/AD_4nXd6TSR6u5NYc-3Yrwjz_LgBWYvgN73ewP1dkEpy-i9C2Nz6e_Fey-Do42uDesENAO5Z1unPKE4Bam2I7COqhO7HVJYAbshh4qlajGLIRbHrJc0epGSuSlbxIr5oILT2T1XZdsxp1w?key=xKeQ27d2k4kFR9-VN1M5Y-E4)
 
-Step 4: Enter your payment details and Click on Place order.
+Step 4: Enter your payment details and click on Place order.
 
 ![|624x291](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdaw4oiXGQI5-pG9CWvA7SUGVoPBz86Zwdy-GhoRPp7QLQ-A0ZwQQBZkOsPfMRc3fBjyN7fCu6xY4cdFi6LWUR61dya6hp0xpQClJ9jv3C9sVt36ImYcVN0avHATV_RU_ACX70r?key=xKeQ27d2k4kFR9-VN1M5Y-E4)
 
@@ -45,7 +45,7 @@ Note: Your Publisher Rocket discount code will be applied automatically. The tot
 
 ![|624x308|624x308](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfShi2K6RfIZFSMJSqVR71AFTzgSA3KzO5bNEldB93W6FL_P0u8acogyo9P_opdrxX9cSvw4zJ5YrQC1kbc2W8mHB9bZ3oPQMd1iBv06gmYqkh_Sx_e9wugAhV4RYCgbcge3iJOJg?key=xKeQ27d2k4kFR9-VN1M5Y-E4)
 
-Publisher Rocket is [priced at $199](https://bit.ly/3XKLNep) with a 30-day Money-Back Guarantee.
+Publisher Rocket is [priced at $199](https://bloggervoice--rocket.thrivecart.com/publisher-rocket/) with a 30-day Money-Back Guarantee.
 
 It's compatible with both Mac and PC, offering access to its full features and comprehensive customer support.
 
@@ -75,7 +75,7 @@ Here’s how it can help:
 
 ## About Publisher Rocket
 
-[Publisher Rocket](https://bit.ly/3XKLNep) is software designed to help self-published authors increase their book sales. It's a targeting tool that connects authors with readers interested in their book genre.
+[Publisher Rocket](https://bloggervoice--rocket.thrivecart.com/publisher-rocket/) is software designed to help self-published authors increase their book sales. It's a targeting tool that connects authors with readers interested in their book genre.
 
 Creators should use KDP Rocket to research the market and decide whether to enter a specific niche.
 

@@ -31,15 +31,11 @@ Step 2: Click on “Get Publisher Rocket”.
 
 Step 3: Enter your personal details to create an account.
 
-![|624x257](https://lh7-rt.googleusercontent.com/docsz/AD_4nXd6TSR6u5NYc-3Yrwjz_LgBWYvgN73ewP1dkEpy-i9C2Nz6e_Fey-Do42uDesENAO5Z1unPKE4Bam2I7COqhO7HVJYAbshh4qlajGLIRbHrJc0epGSuSlbxIr5oILT2T1XZdsxp1w?key=xKeQ27d2k4kFR9-VN1M5Y-E4)
-
 Step 4: Enter your payment details and click on Place order.
-
-**[![|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfS_lqypOKquQ4T4Tlo1insXlytF6N9fkPktZNd8ojSWLW3ZFJHrCWgdmMoY33x_W4YCXbRMb5GjJmaH1nKVgktDVwJJH6sAGpQPEff-jxinX40Nz0vQzCGKYeajko6NrQnmgV4Bw?key=v1G4BuJR6vC87i-Lukr3vrJR)](https://bloggervoice--rocket.thrivecart.com/publisher-rocket/)**
 
 Note: Your Publisher Rocket discount code will be applied automatically. The total cost in your cart will decrease, reflecting the price change. Enjoy your savings!
 
-![|624x97|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXea7WktV1MsjzdGjJgoTom7yPd9jK3apDGnd9oIwlP0XAkgKDiMsUlmAjiBpnhguw5aDhFIzN_ENuf5kJA8ohcY8uom13K4TWfRe3wryDWNK_dyC-kZPV9CwUgetd_EeFuBujgi?key=xKeQ27d2k4kFR9-VN1M5Y-E4)
+[![|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfS_lqypOKquQ4T4Tlo1insXlytF6N9fkPktZNd8ojSWLW3ZFJHrCWgdmMoY33x_W4YCXbRMb5GjJmaH1nKVgktDVwJJH6sAGpQPEff-jxinX40Nz0vQzCGKYeajko6NrQnmgV4Bw?key=v1G4BuJR6vC87i-Lukr3vrJR)](https://bloggervoice--rocket.thrivecart.com/publisher-rocket/)
 
 ## How Much Does Publisher Rocket Cost?
 

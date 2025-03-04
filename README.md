@@ -35,7 +35,7 @@ Step 3: Enter your personal details to create an account.
 
 Step 4: Enter your payment details and click on Place order.
 
-![|624x291](https://lh7-rt.googleusercontent.com/docsz/AD_4nXdaw4oiXGQI5-pG9CWvA7SUGVoPBz86Zwdy-GhoRPp7QLQ-A0ZwQQBZkOsPfMRc3fBjyN7fCu6xY4cdFi6LWUR61dya6hp0xpQClJ9jv3C9sVt36ImYcVN0avHATV_RU_ACX70r?key=xKeQ27d2k4kFR9-VN1M5Y-E4)
+**[![|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXfS_lqypOKquQ4T4Tlo1insXlytF6N9fkPktZNd8ojSWLW3ZFJHrCWgdmMoY33x_W4YCXbRMb5GjJmaH1nKVgktDVwJJH6sAGpQPEff-jxinX40Nz0vQzCGKYeajko6NrQnmgV4Bw?key=v1G4BuJR6vC87i-Lukr3vrJR)](https://bloggervoice--rocket.thrivecart.com/publisher-rocket/)**
 
 Note: Your Publisher Rocket discount code will be applied automatically. The total cost in your cart will decrease, reflecting the price change. Enjoy your savings!
 

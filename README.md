@@ -15,7 +15,7 @@ Lifetime access includes.
 * The author success team gets personalized 24*7 assistance.
 * Category search Explore Amazon's 19,000+ categories and find the perfect fit for your book
 
-![|624x97|624x97][(https://lh7-rt.googleusercontent.com/docsz/AD_4nXeMwhMaiZqXUPEXLk2PExAXQ-ViheDdZU7HO52zd4jrmOEdjov4xR-PyT7UUEYpGMEbwa0TXryejL5RJV5fA-m0QCurhf2xdwUqV9t1KH46-wb1tZDGtLQc8bKVkgmLUU9-Ut7W?key=xKeQ27d2k4kFR9-VN1M5Y-E4)](https://bloggervoice--rocket.thrivecart.com/publisher-rocket/)
+![|624x97|624x97](https://lh7-rt.googleusercontent.com/docsz/AD_4nXeMwhMaiZqXUPEXLk2PExAXQ-ViheDdZU7HO52zd4jrmOEdjov4xR-PyT7UUEYpGMEbwa0TXryejL5RJV5fA-m0QCurhf2xdwUqV9t1KH46-wb1tZDGtLQc8bKVkgmLUU9-Ut7W?key=xKeQ27d2k4kFR9-VN1M5Y-E4)
 
 ## Publisher Rocket Discount [Free Trial]
 
